@@ -2,10 +2,12 @@
 bgmi hook bypass for  32bit  ,hooking bypass fro libagnos.so library and libue4.so library 
 VISIT MY OFFCIAL SITE YOU GET ALL TUOTIRALS AND HOOKING AND LIB MODDING CODES AND SCRIPTS 
 
-http://hackingtech4u.shop  
-http://hackingtech4u.shop
-http://hackingtech4u.shop
-http://hackingtech4u.shop
+https://www.hookcoder.shop
+https://www.hookcoder.shop
+https://www.hookcoder.shop
+https://www.hookcoder.shop
+https://www.hookcoder.shop
+https://www.hookcoder.shop
 
 #antibanbypass 
 #esp      #modmenu 
